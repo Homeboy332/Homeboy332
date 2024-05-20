@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on open source projects
 - 📫 How to reach me E-Mail - kumabrogaurav@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am a 15 year old bound on a wheelchair but can roll anywhere on the digital world🔥
+- ⚡ Fun fact: I am a 15 year old bound on a wheelchair but can roll anywhere in the digital world🔥
 
 <!---
 Homeboy332/Homeboy332 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
